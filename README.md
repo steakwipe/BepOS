@@ -1,0 +1,2 @@
+# BepOS
+on the first bep, bepisman showed up like sup. bepisman saw there was bep, and was like nice. then bepisman tried to internets and he could not. he called upon the followers of bep and beseeched unto them a pretty cool idea. he was like hey you should make an os so then bepisman can bep on BepOS. and we were like, dam. pretty cool idea, come check in soon we'll get to it. thus bepis man said cool man and went to play pogs back in the 90s.  he had a metal slammer. the end.
